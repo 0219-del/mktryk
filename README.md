@@ -1,2 +1,0 @@
-# mktryk
-who is yeongkyeong?
